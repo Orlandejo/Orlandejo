@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Orlandejo
+- Follow me on Twitch :) ----> twitch.tv/orlandejo
+- 👀 Gamer and Content creator 
+- 🌱 Pad player forever
